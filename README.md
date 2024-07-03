@@ -14,5 +14,6 @@ java script
 Lua `pretendo aprende`
 
 
+![-](![image](https://github.com/JP-BR035/JP-BR035/assets/174654046/78db1365-9cc9-4b87-bcfb-7f667be6970c)
+)
 
-![-](https://tenor.com/view/my-honest-reaction-my-honest-reaction-meme-greek-greek-statue-staring-gif-789727115559543790)
