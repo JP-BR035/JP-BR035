@@ -14,6 +14,6 @@ java script
 Lua `pretendo aprende`
 
 
-![-](![image](https://github.com/JP-BR035/JP-BR035/assets/174654046/78db1365-9cc9-4b87-bcfb-7f667be6970c)
+![-]([![image](https://github.e6970c](https://media1.tenor.com/m/CvWsoKBro-4AAAAd/my-honest-reaction-my-honest-reaction-meme.gif)
 )
 
